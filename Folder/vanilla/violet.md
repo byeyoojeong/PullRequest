@@ -1,0 +1,1 @@
+Vanilla is wearing VIOLET suit.
